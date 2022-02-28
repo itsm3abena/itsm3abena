@@ -1,7 +1,7 @@
 ### Hi there, I'm Abenezer - aka [BlackPhinix][website] 👋 
 
-[![Website])]http://abenrahel@gmail.com/
-[![Twitter Follow]]https://twitter.com/ab_chord(https://twitter.com/intent/follow?
+email me on abenrahel@gmail.com/
+follow me on twitter https://twitter.com/ab_chord(https://twitter.com/intent/follow?
 
 ## I'm a dummy, Coder, Developer, and Student!!
 
