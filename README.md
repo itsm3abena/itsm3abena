@@ -1,4 +1,4 @@
-### Hi there, I'm Abenezer - aka [BlackPhinix][website] 👋 
+### Hi there, I'm Abenezer - aka BlackPhinix 👋 
 
 email me on abenrahel@gmail.com/
 
