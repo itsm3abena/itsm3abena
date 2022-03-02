@@ -12,7 +12,7 @@ follow me on twitter https://twitter.com/ab_chord(https://twitter.com/intent/fol
 - 🔭 I just launched my first blog: [course]!
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other content creators
-- 🥅 2021 Goals: Contribute more to Open Source projects
+- 🥅 2022 Goals: Contribute more to Open Source projects
 - ⚡ Fun fact: I love to play piano 
 
 
