@@ -2,7 +2,7 @@
 
 email me on abenrahel@gmail.com/
 
-
+telegram me at @Dumdude
 
 
 follow me on twitter https://twitter.com/ab_chord(https://twitter.com/intent/follow?
