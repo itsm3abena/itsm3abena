@@ -3,7 +3,7 @@
 email me on abenrahel@gmail.com/
 
 telegram me at @Dumdude
-
+ig dm me at blackphinix3
 
 follow me on twitter https://twitter.com/ab_chord(https://twitter.com/intent/follow?
 
