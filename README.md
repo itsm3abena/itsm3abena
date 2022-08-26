@@ -9,7 +9,7 @@ follow me on twitter https://twitter.com/ab_chord(https://twitter.com/intent/fol
 
 ## I'm a dummy, Coder, Developer, and Student!!
 
-- 🔭 front-end developer
+- 🔭 front-end developer, best web template you can find and use!!!!
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with coders around the world
 - 🥅 2022 Goals: Contribute more to Open Source projects
