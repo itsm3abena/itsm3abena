@@ -2,10 +2,10 @@
 
 email me on abenrahel@gmail.com/
 
-telegram me at @Dumdude
-ig dm me at blackphinix3
+telegram me at @itsm3abena
+ig dm me at @itsm3abena
 
-follow me on twitter https://twitter.com/ab_chord(https://twitter.com/intent/follow?
+follow me on twitter @itsm3abena
 
 ## I'm a dummy, Coder, Developer, and Student!!
 
