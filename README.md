@@ -12,7 +12,7 @@ follow me on twitter @itsm3abena
 - 🔭 front-end developer, best web template you can find and use!!!!
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with coders around the world
-- 🥅 2022 Goals: Contribute more to Open Source projects
+- 🥅 Goals: Contribute more to Open Source projects
 - ⚡ Fun fact: I love to play piano 
 
 
