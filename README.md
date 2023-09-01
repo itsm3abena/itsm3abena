@@ -7,7 +7,7 @@ ig dm me at @itsm3abena
 
 follow me on twitter @itsm3abena
 
-## I'm a dummy, Coder, Developer, and Student!!
+## I'm a dummy, Coder
 
 - 🔭 front-end developer, best web template you can find and use!!!!
 - 🌱 I’m currently learning everything 🤣
