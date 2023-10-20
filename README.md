@@ -9,7 +9,6 @@ follow me on twitter @itsm3abena
 
 ## I'm a dummy, Coder
 
-- 🔭 front-end developer, best web template you can find and use!!!!
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with coders around the world
 - 🥅 Goals: Contribute more to Open Source projects
